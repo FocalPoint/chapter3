@@ -1,0 +1,1 @@
+Learning Rails! This is EPIC!! My life is changing for the better. The future is becoming what I want!
